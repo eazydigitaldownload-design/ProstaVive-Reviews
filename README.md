@@ -8,7 +8,7 @@ This detailed review covers what ProstaVive is, how it works, real user experien
 
 ## What ProstaVive Is and How It Works
 
-[**ProstaVive**](https://prostamvive.com/) is a dietary supplement designed to support prostate health, urinary flow, and male wellness. The formula uses natural plant extracts, minerals, and nutrients that aim to support normal prostate function and bladder comfort.
+[**ProstaVive**](https://prostavive-enus.com/)) is a dietary supplement designed to support prostate health, urinary flow, and male wellness. The formula uses natural plant extracts, minerals, and nutrients that aim to support normal prostate function and bladder comfort.
 
 The supplement focuses on:
 
